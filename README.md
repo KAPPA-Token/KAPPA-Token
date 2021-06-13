@@ -1,4 +1,4 @@
 KAPPA-Token
 ===========
 
-KAPPA-Token is a professional gaming industry driven token. Main simple functions: Weekly/Monthly rewards, in-game skins staking and Burn.
+Kappa-Token! The main platform for crypto-streaming service. Passive income for viewers, better rewards for content creators. Check our website for more information.
